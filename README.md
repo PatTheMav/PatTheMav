@@ -5,3 +5,4 @@
 - 🤵🏻‍♂️ Freelance tech consultant
 - 👨🏻‍🎤 Trance DJ
 - 👨🏻‍🔬 STEM Stan
+- 🐈 Can Opener
