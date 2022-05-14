@@ -3,6 +3,6 @@
 - 🧙🏻‍♂️ macOS and pipeline wizard for https://github.com/obsproject
 - 🧑🏻‍💻 Software developer for macOS/iOS
 - 🤵🏻‍♂️ Freelance tech consultant
-- 👨🏻‍🎤 Trance DJ
+- 👨🏻‍🎤 DJ (Trance, Techno, House)
 - 👨🏻‍🔬 STEM Stan
 - 🐈 Can Opener
